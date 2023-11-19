@@ -1,4 +1,4 @@
-![image](https://github.com/heartruler/heartruler/assets/151466153/ddf575fc-c4aa-4b99-8a3b-192618ec2cde)
+![image](https://github.com/heartruler/heartruler/assets/151466153/6c652d16-362d-4395-a54d-a2a607766f2f)
 
 > **dni ;**
 >
