@@ -4,7 +4,9 @@
 >
 > basic dni. (proship ; fujo/loli ; bi-lesb/etc. ; nsfw)
 > 
-> phighting/kny/homestuck fandom.
+> phighting ; kny ; homestuck ; mha ; dsmp fandom.
+>
+> ed ; sh twt
 >
 > tillmizi ; lukamizi ; lukahyuna ; medhammer ; vinespace ; gamrezi shippers.
 >
