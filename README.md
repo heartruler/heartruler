@@ -16,7 +16,7 @@
 
 ### collective info.
 
-**i am NOT an IRL/DA. i am a multi-sourced host with luka (alnst) and other medias (karaku ; kny, medkit ; p!, etc.).**
+**i am NOT an IRL/DA. i am a multi-sourced host with luka (alnst) and other medias (karaku ; kny, medkit ; p!, etc.). I chose my identity as a comfort, and for a sense of security. not because i want to.**
 
 >[do not approach me if i don't know you. i tend to make fun of anyone that comes up to me.]()
 >
